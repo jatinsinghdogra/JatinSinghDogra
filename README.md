@@ -10,7 +10,7 @@
 
 📫 How to reach me **jatindogra84@gmail.com**
 
-⚡ Fun fact **my jolly nature**
+⚡ Fun fact **is my jolly nature**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
